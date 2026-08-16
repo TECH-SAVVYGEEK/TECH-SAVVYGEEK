@@ -1,0 +1,35 @@
+<div align="center">
+
+![.](./Untitled675_20260816154332.png)
+
+![Profile views](https://komarev.com/ghpvc/?username=TECH-SAVVYGEEK&color=orange&style=social)
+
+***
+
+![](./IMG_5790.gif)
+
+$\color{#F1D57D}{\textsf{݁˖Ի𐑼⋆ ponytowns cody emmett jameson anderson!!!}}$
+
+[@pt-hall-of-media](https://github.com/pt-hall-of-media) ⑅ 
+![?](./IMG_5685.jpeg)
+
+[ⓣⓣ](https://www.tiktok.com/@savostic?_r=1&_t=ZS-98vSiCqtEzE) . ㅤㅤ[ⓖⓤⓝⓢ.⃝ⓛⓞⓛ](https://guns.lol/techsavvy)
+
+$\color{#F1D57D}{\textsf{݁✦ ۫ ׅ  special thanks to :}}$
+$\color{#F1D57D}{\textsf{݁ @nooraahhh , @SEXEDUP-CANNIBAL , @carpy1childishxd and sachie !}}$
+
+
+$\color{#F1D57D}{\textsf{݁ c༝h !  iwec plz ( ᴗ͈ˬᴗ͈) }}$
+
+***
+
+
+![](./IMG_5800.gif) ✦ ![](./IMG_5801.gif) ✦ ![](./IMG_5802.gif) ✦ ![](./IMG_5803.gif)
+
+
+![](./Untitled675_20260816154326.png)
+
+</div>
+
+
+
