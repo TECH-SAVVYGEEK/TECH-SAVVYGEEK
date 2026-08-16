@@ -2,7 +2,7 @@
 
 ![.](./Untitled675_20260816154332.png)
 
-Visitors: ![Profile views](https://komarev.com/ghpvc/?username=TECH-SAVVYGEEK&color=orange&style=social)
+![Profile views](https://komarev.com/ghpvc/?username=TECH-SAVVYGEEK&color=orange&style=social)
 
 ***
 
