@@ -2,6 +2,7 @@
 
 ![.](./Untitled675_20260816154332.png)
 
+***
 
 ![](./IMG_5790.gif)
 
@@ -18,6 +19,7 @@ $\color{#F1D57D}{\textsf{݁ @nooraahhh , @SEXEDUP-CANNIBAL , @carpy1childishxd a
 
 $\color{#F1D57D}{\textsf{݁ c༝h !  iwec plz ( ᴗ͈ˬᴗ͈) }}$
 
+***
 
 ![](./Untitled675_20260816154326.png)
 
