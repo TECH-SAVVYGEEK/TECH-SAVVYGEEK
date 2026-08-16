@@ -7,7 +7,7 @@
 
 $\color{#F1D57D}{\textsf{݁˖Ի𐑼⋆ ponytowns cody emmett jameson anderson!!!}}$
 
-[@pt-hall-of-media](https://github.com/pt-hall-of-media) }}$
+[@pt-hall-of-media](https://github.com/pt-hall-of-media) ⑅ 
 ![?](./IMG_5685.jpeg)
 
 [ⓣⓣ](https://www.tiktok.com/@savostic?_r=1&_t=ZS-98vSiCqtEzE) . ㅤㅤ[ⓖⓤⓝⓢ.⃝ⓛⓞⓛ](https://guns.lol/techsavvy)
