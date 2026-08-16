@@ -2,6 +2,8 @@
 
 ![.](./Untitled675_20260816154332.png)
 
+![geeks](https://komarev.com/ghpvc/?username=YOUR_USERNAME&color=blueviolet&style=flat-square)
+
 ***
 
 ![](./IMG_5790.gif)
